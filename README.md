@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Kaotic 
+- 👀 I’m interested in Java/Webdev/C#
+- 🌱 I’m currently learning Webdev/C#
+- 📫 How to reach me Kaotic🤠#0621 (on Discord!)
